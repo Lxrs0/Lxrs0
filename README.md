@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Lxrs0
+- 📫 How to reach me Discord: larsss#1589
